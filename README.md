@@ -1,0 +1,1 @@
+# STRIPEs-Navbar-cool-animation
